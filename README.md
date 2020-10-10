@@ -1,4 +1,4 @@
-### Hi there ✌🏽
+### Hello 👏🏽 , thank you visiting my profile ✌🏽
 
 - 🔭 I’m currently working on getting a machine learning role in health care!
 - 🌱 I’m currently learning and improving my data science skills.
